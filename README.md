@@ -8,8 +8,3 @@
 
 如果你喜欢我们的程序，麻烦点个star✨和watching
 
-欢迎加入团队：C-H-coder-team
-
-qq：1530541242
-
-wechat：gblc2020
